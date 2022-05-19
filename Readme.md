@@ -1,4 +1,4 @@
-Assalamualaikum wr.wb. salam sehat semuanya.
+Assalamu'alaikum warahmatullahi wabarakatuh
 
 Nama : Rizki Bimo Wijaya
 Kelas : 4B
