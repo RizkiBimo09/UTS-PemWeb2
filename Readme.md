@@ -1,9 +1,8 @@
 Assalamu'alaikum warahmatullahi wabarakatuh
 
-Nama : Rizki Bimo Wijaya
+Nama : Rizki Bimo Wijaya (20090028)
 Kelas : 4B
-NIM : 20090028
+
 
 Berikut Link untuk public web ini :
 (http://tukubuku.epizy.com/)
-
